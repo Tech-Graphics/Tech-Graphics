@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Tech-Graphics
 - 👀 I’m interested in Designs
-- 🌱 I’m currently learning Product Design (Ui/U)
+- 🌱 I’m a Product Designer(Ui/Ux)
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ...
 
